@@ -1,4 +1,4 @@
-# Tasks over the Eater Vacation
+# Tasks over the Easter Vacation
 
 ## Software Subteam
 
